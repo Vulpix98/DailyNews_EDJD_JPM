@@ -1,1 +1,1 @@
-# DailyNewsDailyNews_EDJD_JPM
+# DailyNews_EDJD_JPM
